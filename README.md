@@ -1,5 +1,5 @@
 **oioi, pessoinha! ★**
 
-estou estudando no alura & guardando projetos. . . ᓚᘏᗢ 
+あ estou estudando no alura & guardando projetos. * ˚ ✦
  -
  ![](https://media.tenor.com/s-L_uMgbNr0AAAAM/yae-miko-yae-miko-genshin.gif)
