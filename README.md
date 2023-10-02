@@ -1,4 +1,4 @@
-**Olá, pessoinha! ★**
+**Olá, pessoinha!**
 
 estudando no alura & guardando projetos. . . ᓚᘏᗢ 
  -
