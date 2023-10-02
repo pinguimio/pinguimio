@@ -2,4 +2,4 @@
 
 あ estou estudando no alura & guardando projetos.
  -
- ![](https://media.tenor.com/s-L_uMgbNr0AAAAM/yae-miko-yae-miko-genshin.gif)
+ ![](https://media.tenor.com/iDYjZS5LtiIAAAAM/genshin-impact-arlecchino.gif)
