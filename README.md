@@ -1,4 +1,4 @@
-**oioi, pessoinha! ★**⠀⠀⠀⠀
+**oi. ★**⠀⠀⠀⠀
 
 あ estou estudando no alura & guardando projetos.
  -
