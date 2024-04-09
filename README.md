@@ -1,5 +1,3 @@
-**oi. ★**⠀⠀⠀⠀
-
-あ estou estudando no alura & guardando projetos.
+ あ! estou estudando no alura & guardando projetos.
  -
  ![](https://media.tenor.com/iDYjZS5LtiIAAAAM/genshin-impact-arlecchino.gif)
